@@ -10,7 +10,7 @@
 
 ### About
 
-Everyone will face depression at some point of thier life. When I was in a severe depression, I deperately searched for things that will keep me alive. During those critical times, I started watching feel good/comedy/postive movies that'll help me overcome my depression. It helped me a lot and since then, I began created a curated list of feel good comedy movies that'll put a smile on my face after a rough day. The world is full of shit already. When you come across some on a rough day, use these movies.
+Everyone will face depression at some point of thier life. When I was in a severe depression, I desperately searched for things that will keep me alive. During those critical times, I started watching feel good/comedy/postive movies that'll help me overcome my depression. It helped me a lot and since then, I began creating a curated list of feel good comedy movies that'll put a smile on my face after a rough day. The world is full of shit already. When you come across some on a rough day, use these movies.
 
 ### Contribute
 
